@@ -1,0 +1,1 @@
+Heve you ever tired eating goat meat? Trust me you should try it, its very good its chewy enjoyabol and you can mix it with diffrent foods and spices. The taste is un like no other meat and expecily if you use goat meat with Soup.
